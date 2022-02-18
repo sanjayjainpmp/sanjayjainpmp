@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sanjayjainpmp
 - 👀 I’m interested in providing Internship and Project Training..
-- 💞️ I’m looking to collaborate on coding and training
+- 💞️ I’m looking to collaborate on coding and project management 
 - 📫 How to reach me ...
 Mail to sanjayjainpmp@gmail.com
 <!---
